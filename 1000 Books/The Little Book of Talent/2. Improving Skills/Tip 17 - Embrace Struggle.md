@@ -1,0 +1,6 @@
+## Tip 17 - Embrace Struggle 
+
+- At all of the talent hotbeds, from Moscow to Dallas to Brazil to New York, I saw the same facial expression - eyes narrow, jaw tight, nostrils flared, the face of someone intently reaching for something, falling short, and reaching again. This is not a coincidence. Deep practice has a telltale emotional flavor, a feeling that can be summed up in one word - **“struggle.”**
+
+- Most of us instinctively avoid struggle, because it’s uncomfortable. It feels like failure. ***However, when it comes to developing your talent, struggle isn’t an option - it’s a biological necessity.*** This might sound strange, but it’s the way evolution has built us. The struggle and frustration you feel at the edges of your abilities - that uncomfortable burn of “almost, almost” - is the sensation of constructing new neural connections, a phenomenon that the UCLA psychologist Robert Bjork calls **“desirable difficulty.”** 
+- ***Your brain works just like your muscles - no pain, no gain.***

@@ -1,0 +1,3 @@
+## Tip 39 - Practice Immediately After Performance
+
+- The previous tip was about the importance of practicing when you’re fresh. This tip is about a different kind of freshness, which comes in the moment just after a performance, game, or competition. At that moment, practicing is probably the last thing you want to do. But it’s the first thing you should do, if you’re not too worn out, because ***it helps you target your weak points and fix them.***
