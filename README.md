@@ -1,7 +1,7 @@
 <h1 align="center"> My Reading List </h1>
 
 - Books Finished: 11 Books
-- Last Updated On: 18 August 2024, 17:00
+- Last Updated On: 26 August 2024, 19:49
 
 ---
 
